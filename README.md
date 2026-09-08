@@ -5,9 +5,5 @@
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/f4beec0ee6a36f7241d7b8bd0d6ee14b/52d109cc17a9adfb-c1/s640x960/e495c817dec11ee03885f269ed4a1e6dd1de4c17.gifv" alt="One of my fave ENA moments....also in gif form – @yumotohakone on Tumblr"/>
-</p>
-
-<p align="center">
 <img src="https://media1.tenor.com/m/jBpI40PAx2IAAAAC/pugsley-pugsley-agenda.gif" alt="a cartoon character with glasses and a striped shirt is standing next to a man holding a snake ."/>
 </p>
